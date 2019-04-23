@@ -1,5 +1,9 @@
 #### <p align="center"> All my Skins </p>
 
+### [「八名木 」 [HD]](https://www.reddit.com/r/OsuSkins/comments/bg6rir)
+![八名木 ](https://imgur.com/b0IiVGO)
+
+
 ### [「Hedonism」 [HD]](https://www.reddit.com/r/OsuSkins/comments/al49lf)
 ![Hedonism ](https://hedonism.s-ul.eu/a5dKpoV3)
 
